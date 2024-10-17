@@ -1,1 +1,1 @@
-# .github
+# https://discord.gg/RKEfzywCEN
