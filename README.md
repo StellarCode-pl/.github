@@ -1,3 +1,3 @@
-# Projekt tworzony przed jedną osobę!
-Discord:
-- https://discord.gg/RKEfzywCEN
+# StellarCode
+- Wsparcie: https://ko-fi.com/stellarcode
+- Discord: https://dc.stellarcode.pl
